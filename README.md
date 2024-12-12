@@ -1,1 +1,0 @@
-# rosingh24-students.oamk.fi
